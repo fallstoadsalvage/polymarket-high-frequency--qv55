@@ -1,4 +1,4 @@
-# 
+# exclusive Polymarket Strategy | volatility-detection + custom-strategies offers the most advanced Polymarket strategy, with volatility-detection and custom-strategies. Ideal for
 
 
 
